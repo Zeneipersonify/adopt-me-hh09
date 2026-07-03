@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with smart adopt me Script, the #1 Script. Includes auto-heal and instant win for unbeatable performance.
 
 
 
